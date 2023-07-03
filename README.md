@@ -1,4 +1,4 @@
-- 🙂 Hi, My name is Emmanuel. I am a Data and Business Intelligence Analyst 
+- 🙂 Hi, My name is Emmanuel. I am a Data and Marketing Analyst 
 
 - 🥇 I help businesss understand their product, customers and sales through data
 
